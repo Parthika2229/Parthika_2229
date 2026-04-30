@@ -25,7 +25,7 @@
 
 ### 🔹 Personal Portfolio (Gamma)
 
-* Link: https://gamma.app/docs/Parthika-Battala-bhb1rdiwaag2pw9
+* Link: https://parthika-battala-1tjclp6.gamma.site/
 
 ---
 
